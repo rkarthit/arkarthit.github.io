@@ -1,3 +1,3 @@
 # arkarthit.github.io
 Portfolio website 
-( coming soon ... )
+( not updated / professional works not included)
